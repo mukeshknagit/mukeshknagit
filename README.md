@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @mukeshknagit
+- 👀 I’m interested in Data analytics and investment management.
+- 💞️ I’m looking to collaborate on projects of financial analysis with programming tools.
+- 📫 How to reach me @mukesh.kanna9797@gmail.com
